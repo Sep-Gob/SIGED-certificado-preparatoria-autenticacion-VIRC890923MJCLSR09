@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VIRC890923MJCLSR09
+VIRC890923MJCLSR09
